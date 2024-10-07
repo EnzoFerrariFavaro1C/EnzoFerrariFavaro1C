@@ -7,4 +7,7 @@ Meu nome é Enzo Ferrari Favaro
   
 
   **entrem em contato comigo**
+
+  @00001120415184sp@al.educacao.sp.gov.br
+
   
